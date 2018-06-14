@@ -1,6 +1,6 @@
 ---
 ---
 
-# spontaneous writing and unclarified thoughts
+# some spontaneous writing: purely for the fun of it 
 
-hope you can enjoy!
+hope you can find some enjoyment too!
