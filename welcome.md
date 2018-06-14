@@ -1,6 +1,6 @@
 ---
 ---
 
-# some spontaneous writing: purely for the fun of it 
+# a piece everyday: purely for the fun of it 
 
-hope you can find some enjoyment too!
+some spontaneous writing, hope you can find some enjoyment too!
