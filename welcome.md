@@ -1,6 +1,6 @@
 ---
 ---
 
-# welcome to my new site
+# spontaneous writing and unclarified thoughts
 
-Hello world
+hope you can enjoy!
