@@ -102,3 +102,29 @@ so you can fully empathize
 my ways and my thoughts
 
 as selfishly as i impose them
+
+
+### Lovesong
+I was told to sit down 
+
+Because my interpretation was wrong 
+
+‘Art is not what you think it is’
+
+Their heads seemed to nod along 
+
+
+## 2/18/18
+
+### Shakespeare
+
+you can save the world with the things you have
+
+so do it quietly and we might thank you again
+
+this worldly stage has much room
+
+but if your motives are true
+
+then an applause for you
+
