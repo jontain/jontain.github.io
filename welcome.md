@@ -4,7 +4,6 @@
 # an organizational archive for myself. 
 
 some spontaneous writing, hope you can find some enjoyment too!
-hihi
 
 5/14/18
 
@@ -19,7 +18,7 @@ it's purely selfish."
 
 3/25
 
-O'Brien
+## O'Brien
 
 I am ambiguous
 
@@ -33,8 +32,7 @@ in the true colors that I have painted of
 
 myself
 
-Window to 
-
+## Window to 
 
 I am a creature of expression
 
@@ -56,7 +54,8 @@ only
 
 I
 
-oh look at my creativity
+
+## look at my creativity
 
 does it mask my shallow vanity
 
@@ -72,9 +71,7 @@ in this lighting fuse
 
 
 
-
-You are not special!
-
+## You are not special!
 
 if you say it loud
 
@@ -90,9 +87,7 @@ they’ll nod their heads in agreement
 
 
 
-
-want 
-
+## want 
 
 i want to cross the border
 
