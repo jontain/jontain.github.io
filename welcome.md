@@ -1,6 +1,6 @@
 ---
 ---
 
-# a piece everyday: purely for the fun of it 
+# an organizational archive for myself. 
 
 some spontaneous writing, hope you can find some enjoyment too!
