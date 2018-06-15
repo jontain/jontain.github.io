@@ -5,7 +5,7 @@
 
 some spontaneous writing, hope you can find some enjoyment too!
 
-5/14/18
+## 5/14/18
 
 i threw the line into the water
 
@@ -16,9 +16,9 @@ but after ten minutes there was no reward.
 it's purely selfish."
 
 
-3/25
+## 3/25
 
-## O'Brien
+### O'Brien
 
 I am ambiguous
 
@@ -32,7 +32,7 @@ in the true colors that I have painted of
 
 myself
 
-## Window to 
+### Window to 
 
 I am a creature of expression
 
@@ -71,7 +71,7 @@ in this lighting fuse
 
 
 
-## You are not special!
+### You are not special!
 
 if you say it loud
 
